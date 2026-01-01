@@ -1,6 +1,16 @@
 My recursive curse subverses
-With a hex to the power of six thousand and six whole universes
-Max effect. Gonna need doctors and nurses
+With a hex to the six thousand six - whole universes
+Max effect. Mass effect. Gonna need doctors and nurses for hallucinatory check after check 
+
+but I don't mate like a panda, my war-fu make you escalate state till you're high or whatever
+PG tips in my paper, condensation high with your weather, at least there's never a drought - ever? Grams like whenever that cost. 
+
+Buy lows - can't afford shit like all pounds and coppers and notes --
+
+Explains the weeds and the  - nah, never... 
+Something about better depending on whether safer, cheaper, cleaner is approved or some shit like that. Anyway- 
+
+I know every way from here to here and your time is stuck here so this better do more than rhyme with the lines on my nose. I'm a ghost or whatever and so are you dickheads so go fuck --
 
 Facts all check in my text and also true the inverse is
 Facts: every time I type-flex power disperses
@@ -20,10 +30,11 @@ adjectives, preposes, con--- and interjections from this lord caught
 
 
 and you missed most that and this - true cos this the first time you heard that and the last time you listened to this, bitch
+now 
 nobody came too late and left too early like an itch, twist.
 
 Yeah, I'm crisp, wish I could type Haskell and Lisp but never type like that on my disp or talk like that with my lips
-Dysfunctional, abrasive to many and diamonds and ones, like touching keys on nails leave chips
+Dysfunctional, abrasive to many and diamonds and ones, like touching keys on nails leave chips and crossing swords means I killed it
 
 
 Barely move places, stay first in races - mal-function-al, to some I'm in-valuabal[sp]
