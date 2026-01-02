@@ -1,16 +1,37 @@
 My recursive curse subverses
 With a hex to the six thousand six - whole universes
 Max effect. Mass effect. Gonna need doctors and nurses for hallucinatory check after check 
+but I don't checkmate or mate or make many, even at a low rate
+I'd rather pound holes in defenses or get mine pounded, whichever way round (it's all love)
+Cos my mentality is money orientated and up-rounded 
 
-but I don't mate like a panda, my war-fu make you escalate state till you're high or whatever
-PG tips in my paper, condensation high with your weather, at least there's never a drought - ever? Grams like whenever that cost. 
+Hallucinations aren't from real experiences - specifically physical, right? Psych! (Joking)
 
-Buy lows - can't afford shit like all pounds and coppers and notes --
+(Notes are in case you are employees of a state cos I'm not trying to do something wrong like _reason)
+My war-fu [war? it's a joke - as in I am joking] will escalate your state of mind (without touching or harming you) till you're high as the sky too [context: my username online is Sky High]
+And make me (or you) head of the state (of affairs) cos you find that funny to do, too (and unlike everyone else I don't and aren't bait - I'm here to prevent rage instead of cause it -don't ragequit)
+That's an example of getting high, right? Isn't that like an ascent? Just kidding. Already higher (joking) 
+
+(not talking literally) Why can't we all ascend? Is there too little room in the sky among skyscrapers and mountains for us to send everyone? (Joking) 
+(I have to clariify in case someone takes it seriously and mistakes a joke for a delusion)
+Yes, I know there's too little time, money and high quality things for us all to be kings and queens or whatever
+
+PG tips in my digital page and no triple x, 
+condensation high with your weather - wet like sex
+at least there's never a drought, right? 
+Unless after police there's nothing left cos reports were correct (joking)
+Grams of green, white, brown like whenever
+That cost more health than I'll pay and NHS can afford to save and how many pronouncements a day?
+Buy high? More like buy high fused with subsequent low, with most drugs - and buy gang influence too? Nah.
+Unless they only make music in which case the high is the sound - that's sound?
+Buy with all that you got? If it's addictive and you're poor then that's right to a dot
+Then you lose all the pounds and coppers and notes -- 
+and all you got is your roof and your walls and enough boredom to fill 10 times the lot
 
 Explains the weeds and the  - nah, never... 
-Something about better depending on whether safer, cheaper, cleaner is approved or some shit like that. Anyway- 
+Something about better depending on whether safer, cheaper, cleaner is approved in how-many-decades after the houses pass legislation giving us the right to go up so we can be high - 2D to 3D to mental health ward   or some shit like that. LOL. Anyway- 
 
-I know every way from here to here and your time is stuck here so this better do more than rhyme with the lines on my nose. I'm a ghost or whatever and so are you dickheads so go fuck --
+I know every way from here to here and your time is stuck here while you parse this and understand it so this better do more than rhyme with the lines left on the outside of my nose. Joking, for legal reasons. I'm a ghost or whatever and so are you dickheads so go fuck cunts, assholes, someone's ability to talk, temporarily, whatever --
 
 Facts all check in my text and also true the inverse is
 Facts: every time I type-flex power disperses
